@@ -2,3 +2,4 @@
 A blog about hot North Carolina food spots.
 
 Probably lots of barbecue and Wendy's.
+Wendy's has the best frosties!
